@@ -1,4 +1,4 @@
-# GSEC - Base de Conhecimento - KB -Knowledge Base*
+# GSEC - Base de Conhecimento - KB - Knowledge Base
 
 Este repositório servirá como base de conhecimento para o GSEC.
 
