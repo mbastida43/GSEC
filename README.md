@@ -1,6 +1,6 @@
 # GSEC - Base de Conhecimento
 
-Este repositório servirá como **base de conhecimento para o GSEC**.
+Este repositório servirá como **base de conhecimento para o GSEC ou KB -Knowledge Base**.
 
 ## 🎯 Objetivo
 Fomentar a disseminação de informações confiáveis e balizadas por profissionais que entendem de Geopolítica.
