@@ -9,9 +9,13 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
 ---
 
-1) Nesse vídeo tem um histórico que voce entendera a partir do passado até hoje o porque de a Russia querer um Estado tampão?
+1) Nesse vídeo tem um histórico que voce entendera a partir do passado até hoje o porque de a Russia querer um Estado tampão:
 
  - https://youtu.be/dRbAYwU6Xy4?si=YCPwMku9q3LC7l3G 
+
+2) Nesse vídeo mostra o missil balistico Fatah 2:
+
+  - https://youtu.be/hLN3HZxEEfw
 
 
 
