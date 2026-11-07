@@ -8,4 +8,4 @@ Nesta área serão disponibilizados **livros de referência** essenciais para o 
 * **Contribuições:** Se você deseja sugerir uma obra balizada e relevante, abra uma *Issue* ou envie um *Pull Request*.
 
 ---
-📊 *Retornar para a [Base de Conhecimento](README.md).*
+📊 *Retornar para a [Base de Conhecimento](../README.md).*
