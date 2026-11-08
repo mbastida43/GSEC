@@ -7,3 +7,5 @@
 ## Internacionais
 
 1) Scott Ritter [🔗](https://www.youtube.com/@therealscottritter)
+2) Glenn Diesen [🔗](https://www.youtube.com/@GDiesen1)
+3) CRUX [🔗](https://www.youtube.com/@CRUXnews)
