@@ -21,6 +21,11 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://divgen.ru/ (utilizar o recurso de Traduzir do navegador)
 
+4) Centcom 
+  - https://www.centcom.mil/
+
+  O CENTCOM (sigla em inglês para U.S. Central Command, ou Comando Central dos Estados Unidos) é um dos comandos combatentes unificados do Departamento de Defesa dos Estados Unidos
+
 
 
 
