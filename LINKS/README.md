@@ -17,9 +17,9 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://youtu.be/hLN3HZxEEfw
 
+3) Mapa em Russo das incursões russas no território ucraniano
 
-
-
+  - https://divgen.ru/ (utilizar o recurso de Traduzir do navegador)
 
 
 
