@@ -5,7 +5,7 @@
 
 1) ARTE DA GUERRA - Robinson Farinazzo [🔗](https://www.youtube.com/@ARTEDAGUERRA)
 2) GRU GEOPOLITICA - CEL Coutinho [🔗](https://www.youtube.com/@marcocoutinho1507)
-3) Flecha Mura - Lineker [🔗](https://www.youtube.com/@FlechaMura)
+3) Flecha Mura - Linneker Santos [🔗](https://www.youtube.com/@FlechaMura)
 4) Pepe Cafe [🔗](https://www.youtube.com/@pepecafe)
 5) Além das Fronteiras [🔗](https://www.youtube.com/channel/UCTidVGfLVTkso073TiYVSpw)
 
