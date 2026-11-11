@@ -8,6 +8,7 @@
 3) Flecha Mura - Linneker Santos [🔗](https://www.youtube.com/@FlechaMura)
 4) Pepe Cafe [🔗](https://www.youtube.com/@pepecafe)
 5) Além das Fronteiras [🔗](https://www.youtube.com/channel/UCTidVGfLVTkso073TiYVSpw)
+6) Iron Talks [🔗](https://www.youtube.com/@irontalkstv)
 
 ## Internacionais
 
