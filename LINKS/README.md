@@ -13,9 +13,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
  - https://youtu.be/dRbAYwU6Xy4?si=YCPwMku9q3LC7l3G 
 
-2) Nesse vídeo mostra o míssil balístico Fatah 2:
+2) Nesse vídeo mostra o míssil balístico Fatah 2 e outros mísseis balísticos:
 
  - https://youtu.be/LkrMBh8Tvko?si=bVQqcz6QvE7e9z5l
+ - https://www.youtube.com/watch?v=_sb7fuYogiY
 
 3) Kaliningrado
 
