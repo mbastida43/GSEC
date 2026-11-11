@@ -12,6 +12,7 @@
 7) Irmãos Dias Podcast [🔗](https://www.youtube.com/@irmaosdiaspodcast)
 8) BunkerBR [🔗](https://www.youtube.com/@BunkerBR2026)
 9) Flow Podcast [🔗](https://www.youtube.com/@FlowPodcast)
+10) 3 Irmãos Podcast [🔗](https://www.youtube.com/@podcast3irmaos)
 
 ## Internacionais
 
