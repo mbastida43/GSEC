@@ -10,6 +10,8 @@
 5) Além das Fronteiras [🔗](https://www.youtube.com/channel/UCTidVGfLVTkso073TiYVSpw)
 6) Iron Talks [🔗](https://www.youtube.com/@irontalkstv)
 7) Irmãos Dias Podcast [🔗](https://www.youtube.com/@irmaosdiaspodcast)
+8) BunkerBR [🔗](https://www.youtube.com/@BunkerBR2026)
+9) Flow Podcast [🔗](https://www.youtube.com/@FlowPodcast)
 
 ## Internacionais
 
