@@ -15,13 +15,17 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
 2) Nesse vídeo mostra o missil balistico Fatah 2:
 
-  - https://youtu.be/hLN3HZxEEfw
+ - 3) Nesse vídeo mostra o missil balistico Fatah 2:
 
-3) Mapa em Russo das incursões russas no território ucraniano
+3) Kaliningrado
+
+  - https://www.youtube.com/watch?v=bJe53ZZUTTw
+
+4) Mapa em Russo das incursões russas no território ucraniano
 
   - https://divgen.ru/ (utilizar o recurso de Traduzir do navegador)
 
-4) Centcom 
+5) Centcom 
   - https://www.centcom.mil/
 
   O CENTCOM (sigla em inglês para U.S. Central Command, ou Comando Central dos Estados Unidos) é um dos comandos combatentes unificados do Departamento de Defesa dos Estados Unidos
