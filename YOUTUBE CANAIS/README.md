@@ -15,5 +15,6 @@
 2) Glenn Diesen [🔗](https://www.youtube.com/@GDiesen1)
 3) CRUX [🔗](https://www.youtube.com/@CRUXnews)
 4) MilitaryHub [🔗](https://www.youtube.com/watch?v=YVEGWi5thfA)
-4) Stanislav Krapivnik [🔗](https://www.youtube.com/watch?v=C_7fMHFIjnM)
-5) Douglas Macgregor [🔗](https://www.youtube.com/watch?v=SLjmuLginN4)
+5) Real Stories [🔗](https://www.youtube.com/@RealStories)
+5) Stanislav Krapivnik [🔗](https://www.youtube.com/watch?v=C_7fMHFIjnM)
+6) Douglas Macgregor [🔗](https://www.youtube.com/watch?v=SLjmuLginN4)
