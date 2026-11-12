@@ -22,6 +22,16 @@ Veja a lista de [cursos](CURSOS/README.md).
 
 
 
+## ▶️ Canais do YouTube
+Veja a lista de [canais do YouTube](YOUTUBE%20CANAIS/README.md).
+
+
+
+## ✈️ Canais do Telegram
+Veja a lista de [canais do Telegram](TELEGRAM/README.md).
+
+
+
 ## 📄 Licença
 Este projeto está licenciado sob a Licença MIT. Veja o arquivo [LICENSE](LICENSE) para mais detalhes.
 
