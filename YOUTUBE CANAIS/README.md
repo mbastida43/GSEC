@@ -13,6 +13,7 @@
 8) BunkerBR [🔗](https://www.youtube.com/@BunkerBR2026)
 9) Flow Podcast [🔗](https://www.youtube.com/@FlowPodcast)
 10) 3 Irmãos Podcast [🔗](https://www.youtube.com/@podcast3irmaos)
+11) Inteligência LTDA [🔗](https://www.youtube.com/@inteligencialtda)
 
 ## Internacionais
 
