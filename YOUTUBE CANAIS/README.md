@@ -25,6 +25,7 @@
 7) Stanislav Krapivnik [🔗](https://www.youtube.com/@MrSlavikman)
 8) Douglas Macgregor [🔗](https://www.youtube.com/@macgregorwarriordiplomacy)
 9) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
+10) Stanislav Krapivnik em português (Português) [🔗](https://www.youtube.com/@Krapivnik_PT)
 
 
 ---
