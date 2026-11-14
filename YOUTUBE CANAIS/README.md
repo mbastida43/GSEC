@@ -5,7 +5,8 @@
 
 1) ARTE DA GUERRA - Robinson Farinazzo [🔗](https://www.youtube.com/@ARTEDAGUERRA)
 2) GRU GEOPOLITICA - CEL Coutinho [🔗](https://www.youtube.com/@marcocoutinho1507)
-3) Flecha Mura - Linneker Santos [🔗](https://www.youtube.com/@FlechaMura)4) Pepe Cafe [🔗](https://www.youtube.com/@pepecafe)
+3) Flecha Mura - Linneker Santos [🔗](https://www.youtube.com/@FlechaMura)
+4) Pepe Cafe [🔗](https://www.youtube.com/@pepecafe)
 5) Além das Fronteiras [🔗](https://www.youtube.com/channel/UCTidVGfLVTkso073TiYVSpw)
 6) Iron Talks [🔗](https://www.youtube.com/@irontalkstv)
 7) Irmãos Dias Podcast [🔗](https://www.youtube.com/@irmaosdiaspodcast)
@@ -13,6 +14,7 @@
 9) Flow Podcast [🔗](https://www.youtube.com/@FlowPodcast)
 10) 3 Irmãos Podcast [🔗](https://www.youtube.com/@podcast3irmaos)
 11) Inteligência LTDA [🔗](https://www.youtube.com/@inteligencialtda)
+12) Fronteiras do Caos [🔗](https://www.youtube.com/@fronteirasdocaos)
 
 ## Internacionais
 
