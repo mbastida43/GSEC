@@ -25,3 +25,4 @@
 7) Real Stories [🔗](https://www.youtube.com/@RealStories)
 8) Stanislav Krapivnik [🔗](https://www.youtube.com/watch?v=C_7fMHFIjnM)
 9) Douglas Macgregor [🔗](https://www.youtube.com/watch?v=SLjmuLginN4)
+10) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
