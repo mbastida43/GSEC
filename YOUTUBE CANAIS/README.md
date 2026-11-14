@@ -19,9 +19,13 @@
 1) Scott Ritter [🔗](https://www.youtube.com/@therealscottritter)
 2) Glenn Diesen [🔗](https://www.youtube.com/@GDiesen1)
 3) CRUX [🔗](https://www.youtube.com/@CRUXnews)
-4) MilitaryHub [🔗](https://www.youtube.com/watch?v=YVEGWi5thfA)
+4) MilitaryHub [🔗](https://www.youtube.com/@TheMilitaryHub)
 5) Lugares fantásticos [🔗](https://www.youtube.com/@lugaresfantastico)
 6) Real Stories [🔗](https://www.youtube.com/@RealStories)
-7) Stanislav Krapivnik [🔗](https://www.youtube.com/watch?v=C_7fMHFIjnM)
-8) Douglas Macgregor [🔗](https://www.youtube.com/watch?v=SLjmuLginN4)
+7) Stanislav Krapivnik [🔗](https://www.youtube.com/@MrSlavikman)
+8) Douglas Macgregor [🔗](https://www.youtube.com/@macgregorwarriordiplomacy)
 9) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
+
+
+---
+📊 *Retornar para a [Base de Conhecimento](../README.md).*
