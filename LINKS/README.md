@@ -15,7 +15,6 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 2) histórico que você entenderá a partir do passado até hoje o porquê da Rússia querer um Estado-tampão:
 
  - https://youtu.be/dRbAYwU6Xy4?si=YCPwMku9q3LC7l3G 
- - https://youtu.be/HU4OILOjoCc?si=Sz8C9IJ9jrEhn9GJ 
 
 3) Nesse vídeo mostra o míssil balístico Fatah 2 e outros mísseis balísticos:
 
