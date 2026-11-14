@@ -26,6 +26,10 @@
 1) Anadolu [🔗](https://t.me/anadoluagency_en)
 2) Al Jazeera [🔗](https://t.me/AJENews_Official)
 
+## Canais nacionais
+
+1) Flecha Mura - Linneker Santos [🔗](https://t.me/CanalFlechaMura)
+
 
 ---
 📊 *Retornar para a [Base de Conhecimento](../README.md).*

@@ -32,6 +32,16 @@ Veja a lista de [canais do Telegram](TELEGRAM/README.md).
 
 
 
+## 🐦 Perfis no X (Twitter)
+Veja a lista de [perfis no X](X/README.md).
+
+
+
+## 📸 Perfis no Instagram
+Veja a lista de [perfis no Instagram](INSTAGRAM/README.md).
+
+
+
 ## 📄 Licença
 Este projeto está licenciado sob a Licença MIT. Veja o arquivo [LICENSE](LICENSE) para mais detalhes.
 
