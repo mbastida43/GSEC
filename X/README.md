@@ -6,7 +6,7 @@
 
 ## Internacionais
 
-1) Aleksey The Great [🔗](https://x.com/aleksthgrt)
+1) Aleksey The Great [🔗](https://x.com/aleksthgrt/status/2121351277519176008)
 
 
 ---
