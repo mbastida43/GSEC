@@ -6,7 +6,8 @@
 
 ## Internacionais
 
-1) Aleksey The Great [🔗](https://x.com/aleksthgrt/status/2121351277519176008) | conta backup [🔗](https://x.com/alekseyberz11)
+1) Aleksey The Great [🔗](https://x.com/aleksthgrt/status/2121351277519176008)
+2) Aleksey The Great (conta backup) [🔗](https://x.com/alekseyberz11)
 
 
 ---
