@@ -34,6 +34,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://www.centcom.mil/
 
+7) Grupo Wagner
+
+  - https://youtu.be/b8b1SrXJ9tQ?si=zbfxRsugfbLwIOad
+
   
 
 
