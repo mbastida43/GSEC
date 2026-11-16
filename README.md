@@ -47,6 +47,11 @@ Veja a lista de [websites](WEBSITES/README.md).
 
 
 
+## 🪖 Equipamentos Militares
+Veja a lista de [equipamentos militares](EQUIPAMENTOS%20MILITARES/README.md).
+
+
+
 ## 📄 Licença
 Este projeto está licenciado sob a Licença MIT. Veja o arquivo [LICENSE](LICENSE) para mais detalhes.
 
