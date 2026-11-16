@@ -38,6 +38,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://youtu.be/b8b1SrXJ9tQ?si=zbfxRsugfbLwIOad
 
+8) Estratégia Militar e História - Julio Cesar (canal Sala de Guerra) no Kritikê Podcast
+
+  - https://youtu.be/Vt5N2x1qoS4
+
   
 
 
