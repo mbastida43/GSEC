@@ -1,6 +1,6 @@
 # COMPARATIVOS
 
-1) Gravity [🔗](https://www.youtube.com/@gravityuz)
+1) Gravity [🔗](https://www.youtube.com/@gravityuz) - Comparativos de Equipamentos Militares.
 
 
 ---
