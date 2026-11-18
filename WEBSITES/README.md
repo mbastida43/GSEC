@@ -6,7 +6,8 @@
 
 ## Internacionais
 
-1) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) - Ucrânia [🔗](https://ab3.army)
+1) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) - Ucrânia [🔗](https://3brig.ab3.army)
+2) Terceiro Corpo de Exército - Ucrânia (Третій армійський корпус) [🔗](https://ab3.army)
 
 
 ---
