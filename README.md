@@ -42,6 +42,16 @@ Veja a lista de [perfis no Instagram](INSTAGRAM/README.md).
 
 
 
+## 📘 Páginas no Facebook
+Veja a lista de [páginas no Facebook](FACEBOOK/README.md).
+
+
+
+## 🎵 Perfis no TikTok
+Veja a lista de [perfis no TikTok](TIKTOK/README.md).
+
+
+
 ## 🌐 Websites
 Veja a lista de [websites](WEBSITES/README.md).
 

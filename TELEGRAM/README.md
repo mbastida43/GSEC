@@ -8,6 +8,7 @@
 2) Kiev Independent [🔗](https://t.me/KyivIndependent_official)
 3) Kiev Post [🔗](https://t.me/Kyivpost_official)
 4) Radar PPO [🔗](https://t.me/mon1tor_ua)
+5) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) - Ucrânia [🔗](https://t.me/ab3army)
 
 ### Fontes russas
 
