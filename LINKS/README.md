@@ -46,6 +46,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://www.youtube.com/@ab3army
 
+10) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) das Forças Armadas da Ucrânia
+
+  - https://youtu.be/7ZyhOLdsPcE?si=lIyAmVDiVQJYn73O
+
   
 
 
