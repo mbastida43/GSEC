@@ -42,6 +42,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://youtu.be/Vt5N2x1qoS4
 
+9) Terceiro Corpo de Exército - Ucraniano (Третій армійський корпус)
+
+  - https://www.youtube.com/@ab3army
+
   
 
 
