@@ -42,7 +42,7 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://youtu.be/Vt5N2x1qoS4
 
-9) Terceiro Corpo de Exército - Ucraniano (Третій армійський корпус)
+9) Terceiro Corpo de Exército - Ucraniano (Третій армійський корпус) - Canal oficial do Terceiro Corpo de Exército no YouTube. Entrevistas com combatentes profissionais, imagens exclusivas da frente de batalha, detalhes da vida das unidades do corpo e histórias sobre as operações de combate realizadas pelos militares na guerra contra os invasores russos.
 
   - https://www.youtube.com/@ab3army
 
