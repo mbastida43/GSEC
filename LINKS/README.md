@@ -46,7 +46,7 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://www.youtube.com/@ab3army
 
-10) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) das Forças Armadas da Ucrânia
+10) 3ª Brigada de Assalto Separada (3-тя окрема штурмова бригада) das Forças Armadas da Ucrânia - Trilogia documental "Ofensiva". Nas imagens de combate em primeira pessoa — as ações ofensivas das subunidades da Terceira Brigada de Assalto Separada durante a fase de verão-outono do avanço das tropas ucranianas na direção de Bakhmut. O ponto final da ofensiva da brigada na região de Donetsk foi Andriivka.
 
   - https://youtu.be/7ZyhOLdsPcE?si=lIyAmVDiVQJYn73O
 
