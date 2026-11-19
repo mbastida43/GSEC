@@ -11,6 +11,7 @@ Nesta área serão disponibilizados **livros de referência** essenciais para o 
 2) Esse livro explica todo o contexto histórico da Guerra Russo-Ucraniana e porque está acontecendo - **Guerra Russo-Ucraniana: O Conflito que Está Redesenhando a Geopolítica Mundial - Rodolfo Queiroz Laterza e Marco Antônio de Freitas Coutinho**
 3) Panorama completo da Alemanha nazista, da ascensão de Hitler à derrota na Segunda Guerra Mundial - **Ascensão e Queda do III Reich (Volume Único) - William L. Shirer**
 4) A batalha decisiva da Frente Oriental na Segunda Guerra Mundial, que marcou o início da derrota alemã - **Stalingrado - Antony Beevor**
+5) A ofensiva soviética final sobre Berlim e o colapso do III Reich nos últimos dias da Segunda Guerra Mundial - **Berlim 1945: A Queda - Antony Beevor**
 
 
 ---
