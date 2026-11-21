@@ -27,6 +27,10 @@
 1) Anadolu [🔗](https://t.me/anadoluagency_en)
 2) Al Jazeera [🔗](https://t.me/AJENews_Official)
 
+## Geopolítica
+
+1) Glenn Diesen - Professor de relações internacionais russas, com foco em geoeconomia, conservadorismo e Iniciativa da Grande Eurásia [🔗](https://t.me/glenndiesen)
+
 ## Canais nacionais
 
 1) Flecha Mura - Linneker Santos [🔗](https://t.me/CanalFlechaMura)
