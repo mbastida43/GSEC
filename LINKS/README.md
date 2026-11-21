@@ -50,7 +50,7 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://youtu.be/7ZyhOLdsPcE?si=lIyAmVDiVQJYn73O
 
-11) Um dos vídeos mais esclarecedores sobre política, geopolítica e futuro de nossa nação
+11) Iron Talks - Felipe Sextaro: Um dos vídeos mais esclarecedores sobre política, geopolítica e futuro de nossa nação
 
   - https://www.youtube.com/watch?v=mj5cDO6SmGs
 
