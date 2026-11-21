@@ -52,7 +52,7 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
 11) Iron Talks - Felipe Sextaro: Um dos vídeos mais esclarecedores sobre política, geopolítica e futuro de nossa nação
 
-  - https://www.youtube.com/watch?v=mj5cDO6SmGs
+  - https://www.youtube.com/watch?v=mj5cDO6SmGs&t=9247s
 
 12) Stanislav Krapivnik: Rússia retalia após ataque da Ucrânia/OTAN à Ponte da Crimeia - Entrevista com Glenn Diesen
 
