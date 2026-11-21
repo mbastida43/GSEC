@@ -54,6 +54,10 @@ Nesta área serão disponibilizados **links de referência** essenciais para o e
 
   - https://www.youtube.com/watch?v=mj5cDO6SmGs
 
+12) Stanislav Krapivnik: Rússia retalia após ataque da Ucrânia/OTAN à Ponte da Crimeia - Entrevista com Glenn Diesen
+
+  - https://www.youtube.com/watch?v=wamPc_Haj-Y
+
   
 
 
