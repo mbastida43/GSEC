@@ -24,7 +24,7 @@
 4) MilitaryHub [🔗](https://www.youtube.com/@TheMilitaryHub)
 5) Lugares fantásticos [🔗](https://www.youtube.com/@lugaresfantastico)
 6) Real Stories [🔗](https://www.youtube.com/@RealStories)
-7) Stanislav Krapivnik [🔗](https://www.youtube.com/@MrSlavikman)
+7) Stanislav Krapivnik - Podcast In the Eyes of Truth: análise política, militar e geopolítica. Ex-oficial do Exército dos EUA (11 anos), MBA em Supply Chain, analista político-militar baseado em Moscou com mais de 15 viagens ao front [🔗](https://www.youtube.com/@MrSlavikman)
 8) Douglas Macgregor [🔗](https://www.youtube.com/@macgregorwarriordiplomacy)
 9) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
 10) Stanislav Krapivnik em português (Português) [🔗](https://www.youtube.com/@Krapivnik_PT)
