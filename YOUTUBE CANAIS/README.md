@@ -29,6 +29,7 @@
 9) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
 10) Stanislav Krapivnik em português (Português) [🔗](https://www.youtube.com/@Krapivnik_PT)
 11) Sinyor Military [🔗](https://www.youtube.com/@SinyorMilitary)
+12) Azov - Canal oficial do 1º Corpo da Guarda Nacional da Ucrânia 'Azov' [🔗](https://www.youtube.com/@AZOVmedia)
 
 
 ---
