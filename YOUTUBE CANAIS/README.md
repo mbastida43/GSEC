@@ -21,15 +21,14 @@
 1) Scott Ritter [🔗](https://www.youtube.com/@therealscottritter)
 2) Glenn Diesen - Greater Eurasia Podcast. Professor de relações internacionais russas, com foco em geoeconomia, conservadorismo e Iniciativa da Grande Eurásia [🔗](https://www.youtube.com/@GDiesen1)
 3) CRUX [🔗](https://www.youtube.com/@CRUXnews)
-4) MilitaryHub [🔗](https://www.youtube.com/@TheMilitaryHub)
-5) Lugares fantásticos [🔗](https://www.youtube.com/@lugaresfantastico)
-6) Real Stories [🔗](https://www.youtube.com/@RealStories)
-7) Stanislav Krapivnik - Podcast In the Eyes of Truth: análise política, militar e geopolítica. Ex-oficial do Exército dos EUA (11 anos), MBA em Supply Chain, analista político-militar baseado em Moscou com mais de 15 viagens ao front [🔗](https://www.youtube.com/@MrSlavikman)
-8) Douglas Macgregor [🔗](https://www.youtube.com/@macgregorwarriordiplomacy)
-9) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
-10) Stanislav Krapivnik em português (Português) [🔗](https://www.youtube.com/@Krapivnik_PT)
-11) Sinyor Military [🔗](https://www.youtube.com/@SinyorMilitary)
-12) Azov - Canal oficial do 1º Corpo da Guarda Nacional da Ucrânia 'Azov' [🔗](https://www.youtube.com/@AZOVmedia)
+4) Lugares fantásticos [🔗](https://www.youtube.com/@lugaresfantastico)
+5) Real Stories [🔗](https://www.youtube.com/@RealStories)
+6) Stanislav Krapivnik - Podcast In the Eyes of Truth: análise política, militar e geopolítica. Ex-oficial do Exército dos EUA (11 anos), MBA em Supply Chain, analista político-militar baseado em Moscou com mais de 15 viagens ao front [🔗](https://www.youtube.com/@MrSlavikman)
+7) Douglas Macgregor [🔗](https://www.youtube.com/@macgregorwarriordiplomacy)
+8) Tribuna Multipolar - Francisco Balsinha (Português) [🔗](https://www.youtube.com/@TribunaMultipolar)
+9) Stanislav Krapivnik em português (Português) [🔗](https://www.youtube.com/@Krapivnik_PT)
+10) Sinyor Military [🔗](https://www.youtube.com/@SinyorMilitary)
+11) Azov - Canal oficial do 1º Corpo da Guarda Nacional da Ucrânia 'Azov' [🔗](https://www.youtube.com/@AZOVmedia)
 
 
 ---
